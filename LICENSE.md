@@ -1,4 +1,4 @@
-# 
+# secure nft arbitrage bot | trait-analysis + wash-trading-detection is the best nft arbitrage bot, featuring trait-analysis and wash-trading-detection. Fast, smart, and optimized
 
 
 
